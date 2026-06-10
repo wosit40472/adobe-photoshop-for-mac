@@ -1,0 +1,1 @@
+# adobe-photoshop-for-mac
